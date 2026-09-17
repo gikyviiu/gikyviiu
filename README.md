@@ -4,7 +4,6 @@ Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-912
 Programmer^^
 --------------------------
 
-21PM member
 
 * 🌍  I'm based in Russia
 * ✉️  You can contact me at [pshhh.04@mail.ru](mailto:pshhh.04@mail.ru)
